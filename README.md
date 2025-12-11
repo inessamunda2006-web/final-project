@@ -1,1 +1,5 @@
-tes aja 
+Kelompok 2:
+Ghisele 
+Indy
+Elena 
+Inessa
